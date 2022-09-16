@@ -5,6 +5,6 @@
 
 - [AHMED](https://t.me/cccecc)
 
-- [YaFa Source](https://t.me/Ye5eY)
+- [AHMET](https://t.me/Ye5eY)
 
-- [YaFa Group](https://t.me/Ye5eY)
+- [AhMeD](https://t.me/Ye5eY)
