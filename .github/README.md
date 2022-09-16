@@ -3,7 +3,7 @@
 
 
 
-- [AHMED QA](https://t.me/cccecc)
+- [AHMED](https://t.me/cccecc)
 
 - [YaFa Source](https://t.me/Ye5eY)
 
